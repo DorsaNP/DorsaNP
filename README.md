@@ -6,4 +6,6 @@ My research focuses on the growth of quantum material thin films using molecular
 In my free time, I enjoy bouldering, and exploring new cafes and restaurants on long walks. I also love reading books, watching sitcoms, and spending quiet moments by the water, like sitting at the seaport and listening to the waves. 🌊  
 
 Contact
-[dorsanajafipanah@g.harvard.edu]  
+
+[dorsanajafipanah@g.harvard.edu] 
+[dorsa.najafi1@gmail.com]
