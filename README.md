@@ -1,4 +1,4 @@
-Hi, I'm Dorsa Najafipanah!
+Hi, I'm Dorsa:)
 
 I’m a Post-Baccalaureate student at the Harvard Quantum Initiative (HQI), Harvard University, advised by Prof. Jennifer Hoffman in the Department of Physics.  
 My research focuses on the growth of quantum material thin films using molecular beam epitaxy (MBE) and the investigation of their fundamental properties.
